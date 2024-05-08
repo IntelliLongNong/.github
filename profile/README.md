@@ -1,3 +1,3 @@
 ## Hi there 👋
 
-🌈 IntelliLongNong is the industrial-leading incubator who empowers thousands of farmers through AIGC.
+🌈 IntelliLongNong is the industry-leading incubator who empowers thousands of farmers through AIGC.
